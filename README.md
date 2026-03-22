@@ -2,10 +2,6 @@
 <p align="center"> <img src="https://media2.giphy.com/media/v1.Y2lkPTZjMDliOTUyaXQzenEzbmFhcjc5Nzgyazh4YmlzcmF4cWd5a3dydjUzY3U2aHA3dCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/2WHzt2u3S06PgD9SgD/giphy-downsized.gif" alt="varang"/>
 <p align="center"> 𝐘𝐨𝐮𝐫 𝐠𝐨𝐝𝐝𝐞𝐬𝐬 𝐡𝐚𝐬 𝐧𝐨 𝐝𝐨𝐦𝐢𝐧𝐢𝐨𝐧 𝐡𝐞𝐫𝐞.
 <p align="center"> ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧
-<p align=center> my main: <br> 
- <a href=https://github.com/neytirikin> @neytiri 
-</p>  
-  
 
 <!--
 **axgel4life/axgel4life** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

@@ -4,6 +4,7 @@
 <p align="center"> ・・・・・
 <p align="center"> 𝗪𝗲 𝘁𝘂𝗿𝗻 𝗼𝘂𝗿 𝗯𝗮𝗰𝗸 𝗼𝗻 𝗘𝘆𝘄𝗮!
 <p align="center"> <img width="480" height="72" alt="image-removebg-preview (20)" src="https://github.com/user-attachments/assets/43add3dc-997d-4d83-99bc-f202911d7ba0" />
+<p align="center"> <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Faxgel4life"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Faxgel4life&label=%EF%B9%95%F0%9D%91%9A%F0%9D%91%8E%F0%9D%91%9B%F0%9D%91%94%F0%9D%91%98%F0%9D%91%A4%F0%9D%91%8E%F0%9D%91%9B%E3%80%80%E2%8A%B9%20%E0%A3%AA%20%CB%96&labelColor=%23710c04&countColor=%23000000&style=plastic" /></a>
 
 <!--
 **axgel4life/axgel4life** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

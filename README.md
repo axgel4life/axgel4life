@@ -2,7 +2,7 @@
 <p align="center"> <img src="https://media2.giphy.com/media/v1.Y2lkPTZjMDliOTUyaXQzenEzbmFhcjc5Nzgyazh4YmlzcmF4cWd5a3dydjUzY3U2aHA3dCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/2WHzt2u3S06PgD9SgD/giphy-downsized.gif" alt="varang"/>
 <p align="center"> 𝐘𝐨𝐮𝐫 𝐠𝐨𝐝𝐝𝐞𝐬𝐬 𝐡𝐚𝐬 𝐧𝐨 𝐝𝐨𝐦𝐢𝐧𝐢𝐨𝐧 𝐡𝐞𝐫𝐞.
 <p align="center"> ・・・・・
-<p align="center"> 𝗠𝘆 𝗽𝗲𝗼𝗽𝗹𝗲 𝘄𝗲𝗿𝗲 𝘀𝘁𝗮𝗿𝘃𝗲𝗱 𝗮𝗻𝗱 𝘁𝗵𝗲𝘆 𝗰𝗿𝗶𝗲𝗱 𝗳𝗼𝗿 𝗵𝗲𝗹𝗽, 𝗯𝘂𝘁 𝗘𝘆𝘄𝗮 𝗱𝗶𝗱 𝗻𝗼𝘁 𝗰𝗼𝗺𝗲.
+<p align="center"> 𝗪𝗲 𝘁𝘂𝗿𝗻 𝗼𝘂𝗿 𝗯𝗮𝗰𝗸 𝗼𝗻 𝗘𝘆𝘄𝗮!
 <p align="center"> <img width="480" height="72" alt="image-removebg-preview (20)" src="https://github.com/user-attachments/assets/43add3dc-997d-4d83-99bc-f202911d7ba0" />
 
 <!--

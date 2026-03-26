@@ -1,8 +1,11 @@
-## 𝑉𝑎𝑟𝑎𝑛𝑔  𓁺
+</div>
+<div align="center">
+
+ # ${\textsf{\color{#FF0000}𝑉𝑎𝑟𝑎𝑛𝑔  𓁺}}$ 
 <p align="center"> <img src="https://media2.giphy.com/media/v1.Y2lkPTZjMDliOTUyaXQzenEzbmFhcjc5Nzgyazh4YmlzcmF4cWd5a3dydjUzY3U2aHA3dCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/2WHzt2u3S06PgD9SgD/giphy-downsized.gif" alt="varang"/>
-<p align="center"> 𝐘𝐨𝐮𝐫 𝐠𝐨𝐝𝐝𝐞𝐬𝐬 𝐡𝐚𝐬 𝐧𝐨 𝐝𝐨𝐦𝐢𝐧𝐢𝐨𝐧 𝐡𝐞𝐫𝐞.
-<p align="center"> ・・・・・
-<p align="center"> 𝐖𝐞 𝐭𝐮𝐫𝐧 𝐨𝐮𝐫 𝐛𝐚𝐜𝐤 𝐨𝐧 𝐄𝐲𝐰𝐚 !
+<p align="center"> ${\textsf{\color{#EA2B1F}𝐘𝐨𝐮𝐫 𝐠𝐨𝐝𝐝𝐞𝐬𝐬 𝐡𝐚𝐬 𝐧𝐨 𝐝𝐨𝐦𝐢𝐧𝐢𝐨𝐧 𝐡𝐞𝐫𝐞. }}$ 
+<p align="center"> ${\textsf{\color{#bd0d11}・・・・・}}$ 
+<p align="center">${\textsf{\color{#8e0308} 𝐖𝐞 𝐭𝐮𝐫𝐧 𝐨𝐮𝐫 𝐛𝐚𝐜𝐤 𝐨𝐧 𝐄𝐲𝐰𝐚 ! }}$ 
 <p align="center"> <img width="480" height="72" alt="image-removebg-preview (20)" src="https://github.com/user-attachments/assets/43add3dc-997d-4d83-99bc-f202911d7ba0" />
 <p align="center"> <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Faxgel4life"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Faxgel4life&label=%EF%B9%95%F0%9D%91%9A%F0%9D%91%8E%F0%9D%91%9B%F0%9D%91%94%F0%9D%91%98%F0%9D%91%A4%F0%9D%91%8E%F0%9D%91%9B%E3%80%80%E2%8A%B9%20%E0%A3%AA%20%CB%96&labelColor=%23710c04&countColor=%23000000&style=plastic" /></a>
 

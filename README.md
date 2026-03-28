@@ -14,9 +14,10 @@
 <div align="center">
  
 [<img width="97" height="57" alt="tumblr_a094c1c79c03f040e9baf43b9b7cf75a_84291ae8_100" src="https://github.com/user-attachments/assets/b9ea29b8-c64e-4ea2-89de-97269f552be2" />
-](https://atteiu.straw.page/)<a/>ㅤ ㅤ ㅤ <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Faxgel4life"><a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Faxgel4life%20"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Faxgel4life%20&label=.%20%E0%B1%BF%20%20%20%F0%9D%91%A0%F0%9D%91%8E%F0%9D%91%9F%F0%9D%91%92%F0%9D%91%9B%F0%9D%91%A1%F0%9D%91%A2%20%20%E0%B9%91%20%20%20%D6%B9%20%20%20%E2%82%8A&labelColor=%23304674&countColor=%2398bad5&style=flat" /></a></a>ㅤ ㅤ ㅤ [<img width="97" height="57" alt="tumblr_ef654db550c78ba547a6e34202ba95ed_beb63fe6_100" src="https://github.com/user-attachments/assets/2ebf7056-7f72-44e9-85ba-bf9e3b525123" />
+](https://atteiu.straw.page/)<a/>ㅤ ㅤ[<img width="97" height="57" alt="tumblr_bc35cd3f48d1a342301161dfed2eca91_978696d0_100" src="https://github.com/user-attachments/assets/7cfcb572-d8fc-4494-b222-b164a980164e" />](https://atteiu.atabook.org/)<a/>
+ㅤ ㅤ[<img width="97" height="57" alt="tumblr_ef654db550c78ba547a6e34202ba95ed_beb63fe6_100" src="https://github.com/user-attachments/assets/2ebf7056-7f72-44e9-85ba-bf9e3b525123" />
 ](https://attesgalleryah.straw.page/)</a>
-
+<p align="center"> <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Faxgel4life%20"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Faxgel4life%20&label=.%20%E0%B1%BF%20%20%20%F0%9D%91%A0%F0%9D%91%8E%F0%9D%91%9F%F0%9D%91%92%F0%9D%91%9B%F0%9D%91%A1%F0%9D%91%A2%20%20%E0%B9%91%20%20%20%D6%B9%20%20%20%E2%82%8A&labelColor=%23304674&countColor=%2398bad5&style=flat" /></a></a>ㅤ 
 
 
 <p align="center"> <img width="1500" height="211" alt="tumblr_b20b1ea33b7deff1b825899293fda8aa_36b1c914_2048" src="https://github.com/user-attachments/assets/33cbde49-f717-44b0-b504-0f6fc6b92eb7" />

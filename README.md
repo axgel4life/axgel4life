@@ -6,7 +6,19 @@
 <p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&pause=1000&color=3C78BE&center=true&vCenter=true&width=435&lines=Eywa+shows+us+who+we+are%2C;and+who+we+can+be.;But+she+also+reminds+us+;of+what+has+been+lost." alt="Typing SVG" /></a>
 
 <p align="center"> <img width="1140" height="482" alt="Untitled96_20260328181256" src="https://github.com/user-attachments/assets/529f562f-72ed-451a-bb7f-5d5789afd4f9" />
-
+<div align="center">  
+  <details>
+    <summary>${\textsf{\color{#b2cbde}♫　　.　𝑨𝑹𝑻　　˘}}$</summary>
+    <table>
+    <tr>
+      <td>
+      <div align="center">
+      <img width="385" height="385482" src=https://github.com/user-attachments/assets/ab337cd2-b2bd-44d4-935c-6e9ab434c451>
+      </td>
+    </tr>
+  </table>
+  </div>
+</details>
 
 <p align="center"> <img width="546" height="149" alt="tumblr_14bb540f9eac77b2bfbaf783145a5d29_fa1d94b0_2048" src="https://github.com/user-attachments/assets/4f4861dc-d8da-4a4b-9940-0d70d4ca7910" />
 

@@ -1,38 +1,29 @@
 </div>
 <div align="center">
 
- # ${\textsf{\color{#3C78BEFF}⸝⸝ㅤ𝑆𝑜'𝑙𝑒𝑘ㅤ𓏻 ✦}}$ 
-<p align="center"> <img width="1500" height="219" alt="tumblr_6bed66db678bc36ca83203d58d7f1121_d0783152_2048" src="https://github.com/user-attachments/assets/de218862-3cd8-4b91-8651-c1bc5d95355f" />
-<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&pause=1000&color=3C78BE&center=true&vCenter=true&width=435&lines=Eywa+shows+us+who+we+are%2C;and+who+we+can+be.;But+she+also+reminds+us+;of+what+has+been+lost." alt="Typing SVG" /></a>
+ # ${\textsf{\color{#ffffff}𝑙𝑎𝑟𝑝ㅤ⸝⸝ㅤ𝑙𝑎𝑟𝑝}}$ 
+ </div>
+<div align="center">
+<img alt="da7f5fe68bd3093dbe27612d1449818b-ezgif com-crop (1)" src="https://github.com/user-attachments/assets/7f6a3b95-887a-432e-b092-f3c985bff858" />
 
-<p align="center"> <img width="1140" height="482" alt="Untitled96_20260328181256" src="https://github.com/user-attachments/assets/529f562f-72ed-451a-bb7f-5d5789afd4f9" />
-<div align="center">  
-  <details>
-    <summary>${\textsf{\color{#b2cbde}♫　　.　𝑨𝑹𝑻　　˘}}$</summary>
-    <table>
-    <tr>
-      <td>
-      <div align="center">
-      <img width="385" height="385482" src=https://github.com/user-attachments/assets/ab337cd2-b2bd-44d4-935c-6e9ab434c451>
-      </td>
-    </tr>
-  </table>
-  </div>
-</details>
 
-<p align="center"> <img width="546" height="149" alt="tumblr_14bb540f9eac77b2bfbaf783145a5d29_fa1d94b0_2048" src="https://github.com/user-attachments/assets/4f4861dc-d8da-4a4b-9940-0d70d4ca7910" />
 
  </div>
 <div align="center">
  
-[<img width="97" height="57" alt="tumblr_a094c1c79c03f040e9baf43b9b7cf75a_84291ae8_100" src="https://github.com/user-attachments/assets/b9ea29b8-c64e-4ea2-89de-97269f552be2" />
-](https://atteiu.straw.page/)<a/>ㅤ ㅤ[<img width="97" height="57" alt="tumblr_bc35cd3f48d1a342301161dfed2eca91_978696d0_100" src="https://github.com/user-attachments/assets/7cfcb572-d8fc-4494-b222-b164a980164e" />](https://atteiu.atabook.org/)<a/>
-ㅤ ㅤ[<img width="97" height="57" alt="tumblr_ef654db550c78ba547a6e34202ba95ed_beb63fe6_100" src="https://github.com/user-attachments/assets/2ebf7056-7f72-44e9-85ba-bf9e3b525123" />
+[<img alt="tumblr_9e20acb89de357306c3a3a6a43c40617_42aeb079_75" src="https://github.com/user-attachments/assets/9a8e9bca-6f21-4b21-9396-bef4945a1656" />](https://atteiu.straw.page/)<a/>ㅤ ㅤ[<img alt="tumblr_78a05b640940faa0e60b634146cee99a_a7d51629_100" src="https://github.com/user-attachments/assets/b3b66550-1968-425e-95b1-ca27c0d254bd" />](https://atteiu.atabook.org/)<a/>
+ㅤ ㅤ[<img alt="tumblr_4d60f998841f56c753045923f1a7276c_33900393_75" src="https://github.com/user-attachments/assets/987b14fa-d472-45bc-babc-7e743a9587e8" />
 ](https://attesgalleryah.straw.page/)</a>
-<p align="center"> <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Faxgel4life%20"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Faxgel4life%20&label=.%20%E0%B1%BF%E3%85%A4sarentu%E3%85%A4%E0%B9%91%20%20%20%D6%B9%20%20%20%E2%82%8A&labelColor=%23304674&countColor=%23b2cbde&style=flat" /></a> 
+ </div>
+<div align="center">
+<img alt="tumblr_4ee123bb50e73fcd62c08b404186dd51_4643effe_100" src="https://github.com/user-attachments/assets/9b621c1b-8c4c-4b45-935b-75ebebdd8c0c" /><img alt="tumblr_87013b2c36ea4189172f9e270617a686_51365a7d_100" src="https://github.com/user-attachments/assets/4b2be163-4b2b-4bfa-936f-d50a9dd10029" /><img alt="tumblr_0a4c309aef6881472b7b2b3abc27acc3_1bd45b36_100" src="https://github.com/user-attachments/assets/bb44264a-636a-429a-8426-e55996373acd" /><img  alt="tumblr_c307f1a9db4fa56cf104aa7ece97e72b_207b086b_100" src="https://github.com/user-attachments/assets/fd080192-4578-4344-8748-aa1c789734ca" /><img alt="tumblr_9ea87ddd06ac07d37795e59346be6d4b_ef8324aa_100" src="https://github.com/user-attachments/assets/e8116674-9759-4d24-af97-f4cd0d3a1808" />
 
-<p align="center"> <img width="1500" height="211" alt="tumblr_b20b1ea33b7deff1b825899293fda8aa_36b1c914_2048" src="https://github.com/user-attachments/assets/33cbde49-f717-44b0-b504-0f6fc6b92eb7" />
 
+
+
+ </div>
+<div align="center">
+<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Faxgel4life"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Faxgel4life&label=%F0%93%86%A9%E2%99%B1%F0%93%86%AA&labelColor=%23ffffff&countColor=%23555555&style=flat" /></a>
 
 
 

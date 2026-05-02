@@ -34,7 +34,7 @@
   </div>
 <br>
 <img alt="tumblr_ad34e8cde82b7998a3a5b2f7211f0e04_bf532bc4_1280" src="https://github.com/user-attachments/assets/efe6bcc9-de95-4c8f-a1a2-25d2dda5d415" />
-<p align="center"><img alt="13 " src="https://github.com/user-attachments/assets/e66e743b-3f69-42d4-9178-c374ff771ca6" />
+<p align="center"><img alt="13 " src="https://github.com/user-attachments/assets/e66e743b-3f69-42d4-9178-c374ff771ca6"/>
 
 
  </div>

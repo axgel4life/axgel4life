@@ -1,8 +1,42 @@
-
+<img align="right" alt="11" src="https://github.com/user-attachments/assets/1f97e614-97af-4474-b6a4-a4b96b6346d9" />
+ <br>
+  <br>
+   <br>
+   <br>
  </div>
 <div align="center">
-<img alt="Untitled123_20260502080305" src="https://github.com/user-attachments/assets/3bb3a990-c22f-405e-8371-30c4bcf78b4c" />
+<table>
+    </tr>
+<td> <p align="center"> $\color{#c5fd68}{\textsf{ ney / atte / ivoka}}$
+<p align="center"> $\color{#c5fd68}{\textsf{any pronouns}}$
+<p align="center"> $\color{#c5fd68}{\textsf{ minor , bisexual/berrisexual}}$
+      </td>
+    </tr>
+  </table>
+  </div>
 <p align="center"><img alt="tumblr_ba939885874be952cb4e455db069aee6_675bc69c_1280" src="https://github.com/user-attachments/assets/7b8c49d7-4c2d-4edc-9d72-811873ee088b" />
+<img align="left" alt="12 " src="https://github.com/user-attachments/assets/6092a96c-3334-4a33-bcdc-08ebbf4f307e" />
+ <br>
+  <br>
+  <br>
+  <br>
+ <br>
+</div>
+<div align="center">
+<table>
+    </tr>
+<td> <p align="center"> $\color{#c5fd68}{\textsf{basic dni criteria}}$
+<p align="center"> $\color{#c5fd68}{\textsf{avatar/mlp/mlb/arcane/...}}$
+<p align="center"> $\color{#c5fd68}{\textsf{feel free to c+h / int unless when i set dni}}$
+      </td>
+    </tr>
+  </table>
+  </div>
+<br>
+<img alt="tumblr_ad34e8cde82b7998a3a5b2f7211f0e04_bf532bc4_1280" src="https://github.com/user-attachments/assets/efe6bcc9-de95-4c8f-a1a2-25d2dda5d415" />
+<p align="center"><img alt="13 " src="https://github.com/user-attachments/assets/e66e743b-3f69-42d4-9178-c374ff771ca6" />
+
+
  </div>
 <div align="center">
  

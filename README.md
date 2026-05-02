@@ -24,13 +24,13 @@
 <table>
     </tr>
 <td> <p align="center"> $\color{#c5fd68}{\textsf{basic dni criteria}}$
-<p align="center"> $\color{#c5fd68}{\textsf{avatar/mlp/mlb/arcane/...}}$
+<p align="center"> $\color{#c5fd68}{\textsf{fandom: avatar(!!)/mlp/mlb/arcane/...}}$
 <p align="center"> $\color{#c5fd68}{\textsf{feel free to c+h / int unless when i set dni}}$
       </td>
     </tr>
   </table>
   </div>
-<p align="center"><img alt="tumblr_80d9e1b77bc54fb0a535b298023a2798_063242c7_100" src="https://github.com/user-attachments/assets/4beb1690-233f-4153-a439-2165d62edfa8" /><img alt="tumblr_54874986067d8e8e8e650b9fcad4b27d_aaa67d9e_100" src="https://github.com/user-attachments/assets/d4fa4a88-9d29-46f4-8acb-0b9038c6dc7a" /><img alt="tumblr_20b7ebc72f68e8b2fda555a25ead8e86_0cc29b11_100" src="https://github.com/user-attachments/assets/7d1181d6-596e-48f9-9342-2075e6c1374e" />
+<p align="center"><img alt="tumblr_80d9e1b77bc54fb0a535b298023a2798_063242c7_100" src="https://github.com/user-attachments/assets/4beb1690-233f-4153-a439-2165d62edfa8" /> <img alt="tumblr_54874986067d8e8e8e650b9fcad4b27d_aaa67d9e_100" src="https://github.com/user-attachments/assets/d4fa4a88-9d29-46f4-8acb-0b9038c6dc7a" /> <img alt="tumblr_20b7ebc72f68e8b2fda555a25ead8e86_0cc29b11_100" src="https://github.com/user-attachments/assets/7d1181d6-596e-48f9-9342-2075e6c1374e" />
 
 
 <br>

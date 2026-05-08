@@ -37,14 +37,23 @@
 <img alt="tumblr_ad34e8cde82b7998a3a5b2f7211f0e04_bf532bc4_1280" src="https://github.com/user-attachments/assets/efe6bcc9-de95-4c8f-a1a2-25d2dda5d415" />
  </div>
 <div align="center">
+ 
+https://github.com/user-attachments/assets/4fbca227-72ff-4ca2-a7e6-b197ff24e6ae
+
+ </div>
+<div align="center">
 <img alt="tumblr_da01eb8e3ce7d2aaef6150c6d51c43e4_07f62705_500 (3)" src="https://github.com/user-attachments/assets/21b4223c-9749-4ba3-aedd-d8eba2bca747" /><img alt="Untitled125_20260503162656" src="https://github.com/user-attachments/assets/e2f0638c-ac59-409e-a2e8-5ae692170102" /><img alt="tumblr_e39b17729b5664347787a7819b3a849a_7fa73f48_500 (1)" src="https://github.com/user-attachments/assets/97b2f756-97bf-409d-a4cc-fb80480bf49f" />
-
-
 
  </div>
 <div align="center">
  
 [<img alt="tumblr_cd2a27923bb9cd4d169d173bef7b5466_4ec9d64d_100" src="https://github.com/user-attachments/assets/eeae7e9d-da56-43d1-b85f-1b772ad62e74" />](https://hertomolife.straw.page)</a>ㅤㅤ<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Faxgel4life"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Faxgel4life&label=%F0%9D%91%8E%F0%9D%91%9D%F0%9D%91%9D%F0%9D%91%99%F0%9D%91%92%F0%9D%91%A0%20%E3%85%A4!%E2%80%87%E2%80%87%E0%AD%A7&labelColor=%23efeed7&countColor=%239ab7d3" /></a>ㅤㅤ[<img alt="tumblr_6c253751f9309880d1b7f6dc0679447b_93533bae_75" src="https://github.com/user-attachments/assets/12fae657-f341-4996-8ca3-3784957b02a1" />](https://atteiu.straw.page)</a>
+
+
+
+
+
+
 
 
 

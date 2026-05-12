@@ -7,7 +7,7 @@
 <table>
     </tr>
 <td> <p align="center"> $\color{#c5fd68}{\textsf{ ney / atte / ivoka}}$
-<p align="center"> $\color{#c5fd68}{\textsf{any pronouns}}$
+<p align="center"> $\color{#c5fd68}{\textsf{any pronouns , alt irl}}$
 <p align="center"> $\color{#c5fd68}{\textsf{ minor , bisexual/berrisexual}}$
       </td>
     </tr>

@@ -1,53 +1,21 @@
-<img align="right" alt="11" src="https://github.com/user-attachments/assets/1f97e614-97af-4474-b6a4-a4b96b6346d9" />
- <br>
-  <br>
- <p align="center"><img alt="tumblr_5c0cfc87baac684b41fcbb579a764fb3_dd03cb1e_1280 (2)" src="https://github.com/user-attachments/assets/c1324c66-b6e9-4135-806b-4b49b3b70be7" />ㅤ<img alt="tumblr_19ae813b679b9286a37ab4d2b3b864b8_452e532d_250" src="https://github.com/user-attachments/assets/9dc6d8cc-c508-4ba6-9c14-13560243c16e"/>ㅤ<img  alt="tumblr_497d634f9ef46f7baaad3c3f6993ee92_e4cd39fb_2048 (1)" src="https://github.com/user-attachments/assets/7e572588-6b51-414a-9f9e-c1c27188e397" />
-</div>
-<div align="center">
-<table>
-    </tr>
-<td> <p align="center"> $\color{#c5fd68}{\textsf{ ney / atte / ivoka}}$
-<p align="center"> $\color{#c5fd68}{\textsf{any pronouns , alt irl}}$
-<p align="center"> $\color{#c5fd68}{\textsf{ minor , bisexual/berrisexual}}$
-      </td>
-    </tr>
-  </table>
-  </div>
-<p align="center"><img alt="tumblr_ba939885874be952cb4e455db069aee6_675bc69c_1280" src="https://github.com/user-attachments/assets/7b8c49d7-4c2d-4edc-9d72-811873ee088b" />
-<img align="left" alt="12 " src="https://github.com/user-attachments/assets/6092a96c-3334-4a33-bcdc-08ebbf4f307e" />
- <br>
-  <br>
-  <br>
- <br>
-</div>
-<div align="center">
-<table>
-    </tr>
-<td> <p align="center"> $\color{#c5fd68}{\textsf{basic dni criteria}}$
-<p align="center"> $\color{#c5fd68}{\textsf{fandom: avatar(!!)/mlp/mlb/arcane/...}}$
-<p align="center"> $\color{#c5fd68}{\textsf{feel free to c+h / int unless when i set dni}}$
-      </td>
-    </tr>
-  </table>
-  </div>
-<p align="center"><img alt="tumblr_80d9e1b77bc54fb0a535b298023a2798_063242c7_100" src="https://github.com/user-attachments/assets/4beb1690-233f-4153-a439-2165d62edfa8" /><img alt="tumblr_54874986067d8e8e8e650b9fcad4b27d_aaa67d9e_100" src="https://github.com/user-attachments/assets/d4fa4a88-9d29-46f4-8acb-0b9038c6dc7a" /><img alt="tumblr_20b7ebc72f68e8b2fda555a25ead8e86_0cc29b11_100" src="https://github.com/user-attachments/assets/7d1181d6-596e-48f9-9342-2075e6c1374e" />
-
-
-<br>
-<img alt="tumblr_ad34e8cde82b7998a3a5b2f7211f0e04_bf532bc4_1280" src="https://github.com/user-attachments/assets/efe6bcc9-de95-4c8f-a1a2-25d2dda5d415" />
  </div>
 <div align="center">
- 
-https://github.com/user-attachments/assets/4fbca227-72ff-4ca2-a7e6-b197ff24e6ae
+<img alt="tumblr_3030d4811fec1a67c3cd197fad48e895_afc4aeb6_75" src="https://github.com/user-attachments/assets/506f60ae-6b02-4cfd-bc2b-5c5c639f0a1e" />ㅤㅤ<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Faxgel4life"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Faxgel4life&label=%F0%93%86%A9%20%F0%9D%91%99%F0%9D%91%8E%F0%9D%91%9F%F0%9D%91%9D%E3%85%A4%E2%99%B1%E3%85%A4%F0%9D%91%99%F0%9D%91%8E%F0%9D%91%9F%F0%9D%91%9D%F0%93%86%AA&labelColor=%23ffffff&countColor=%23555555&style=flat" /></a>ㅤㅤ<img alt="tumblr_3ca422b471fa23d76d2c23dbc7eadb3f_e64b4661_75" src="https://github.com/user-attachments/assets/28ef2f21-a257-40c3-99d0-b190d3efb0dd" />
 
  </div>
 <div align="center">
-<img alt="tumblr_da01eb8e3ce7d2aaef6150c6d51c43e4_07f62705_500 (3)" src="https://github.com/user-attachments/assets/21b4223c-9749-4ba3-aedd-d8eba2bca747" /><img alt="Untitled125_20260503162656" src="https://github.com/user-attachments/assets/e2f0638c-ac59-409e-a2e8-5ae692170102" /><img alt="tumblr_e39b17729b5664347787a7819b3a849a_7fa73f48_500 (1)" src="https://github.com/user-attachments/assets/97b2f756-97bf-409d-a4cc-fb80480bf49f" />
+<img alt="da7f5fe68bd3093dbe27612d1449818b-ezgif com-crop (1)" src="https://github.com/user-attachments/assets/7f6a3b95-887a-432e-b092-f3c985bff858" />
+
+
 
  </div>
 <div align="center">
  
-[<img alt="tumblr_cd2a27923bb9cd4d169d173bef7b5466_4ec9d64d_100" src="https://github.com/user-attachments/assets/eeae7e9d-da56-43d1-b85f-1b772ad62e74" />](https://hertomolife.straw.page)</a>ㅤㅤ<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Faxgel4life"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Faxgel4life&label=%F0%9D%91%8E%F0%9D%91%9D%F0%9D%91%9D%F0%9D%91%99%F0%9D%91%92%F0%9D%91%A0%20%E3%85%A4!%E2%80%87%E2%80%87%E0%AD%A7&labelColor=%23efeed7&countColor=%239ab7d3" /></a>ㅤㅤ[<img alt="tumblr_6c253751f9309880d1b7f6dc0679447b_93533bae_75" src="https://github.com/user-attachments/assets/12fae657-f341-4996-8ca3-3784957b02a1" />](https://atteiu.straw.page)</a>
+[<img alt="tumblr_9e20acb89de357306c3a3a6a43c40617_42aeb079_75" src="https://github.com/user-attachments/assets/9a8e9bca-6f21-4b21-9396-bef4945a1656" />](https://atteiu.straw.page/)<a/>ㅤ ㅤ[<img alt="tumblr_78a05b640940faa0e60b634146cee99a_a7d51629_100" src="https://github.com/user-attachments/assets/b3b66550-1968-425e-95b1-ca27c0d254bd" />](https://atteiu.atabook.org/)<a/>
+ㅤ ㅤ[<img alt="tumblr_4d60f998841f56c753045923f1a7276c_33900393_75" src="https://github.com/user-attachments/assets/987b14fa-d472-45bc-babc-7e743a9587e8" />](https://attesgalleryah.straw.page/)</a>
+ </div>
+<div align="center">
+<img alt="tumblr_4ee123bb50e73fcd62c08b404186dd51_4643effe_100" src="https://github.com/user-attachments/assets/9b621c1b-8c4c-4b45-935b-75ebebdd8c0c" /><img alt="tumblr_87013b2c36ea4189172f9e270617a686_51365a7d_100" src="https://github.com/user-attachments/assets/4b2be163-4b2b-4bfa-936f-d50a9dd10029" /><img alt="tumblr_0a4c309aef6881472b7b2b3abc27acc3_1bd45b36_100" src="https://github.com/user-attachments/assets/bb44264a-636a-429a-8426-e55996373acd" /><img  alt="tumblr_c307f1a9db4fa56cf104aa7ece97e72b_207b086b_100" src="https://github.com/user-attachments/assets/fd080192-4578-4344-8748-aa1c789734ca" /><img alt="tumblr_9ea87ddd06ac07d37795e59346be6d4b_ef8324aa_100" src="https://github.com/user-attachments/assets/e8116674-9759-4d24-af97-f4cd0d3a1808" />
 
 
 

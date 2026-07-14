@@ -1,8 +1,8 @@
-<p align="center"><a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Faxgel4life"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Faxgel4life&label=%F0%9D%91%97%F0%9D%91%8E%F0%9D%91%9F%E2%84%8E%F0%9D%91%92%F0%9D%91%8E%F0%9D%91%91%20%20%F0%93%88%92%20%DD%81%E3%80%80%E0%A9%AD&labelColor=%23304674&countColor=%23263759" /></a>
+<p align="center"><a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Faxgel4life"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Faxgel4life&label=%F0%9D%84%9E%20%E2%8B%86%CB%8E%CB%8A-&labelColor=%23645c5e&countColor=%23fcfcfc&style=flat" /></a>
 </div>
 <div align="center">
-<img alt="jeytiri" src="https://github.com/user-attachments/assets/ce459be6-da15-4d68-8085-5bf45741d315" />
-<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&pause=1000&color=C6D3E3&center=true&vCenter=true&width=435&lines=Wherever+we+go%2C+;this+family+is+our+fortress.;%E2%9C%B7;I+see+you" alt="Typing SVG" /></a>
+<img alt="tumblr_04da889c31c21d40951f48b0f24928f5_6dc0c3cb_500" src="https://github.com/user-attachments/assets/92ada51c-57c0-4245-b417-7604c13d35c5" />
+<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&pause=1000&color=FCFCFC&center=true&vCenter=true&width=435&lines=COLA+%2B+PEPSI;%E2%9C%B7;TOM+KAULITZ+IS+SEXY" alt="Typing SVG" /></a>
 </div>
 <div align="center">
  

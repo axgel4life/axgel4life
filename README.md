@@ -1,8 +1,9 @@
-<p align="center"><a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Faxgel4life"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Faxgel4life&label=%F0%9D%84%9E%20%E2%8B%86%CB%8E%CB%8A-&labelColor=%23645c5e&countColor=%23fcfcfc&style=flat" /></a>
+<p align="center"><a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Faxgel4life"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Faxgel4life&label=%F0%9D%84%9E%20%E2%8B%86%CB%8E%CB%8A-&labelColor=%23dc9ad6&countColor=%23ffcff7&style=flat" /></a>
 </div>
 <div align="center">
-<img alt="tumblr_04da889c31c21d40951f48b0f24928f5_6dc0c3cb_500" src="https://github.com/user-attachments/assets/92ada51c-57c0-4245-b417-7604c13d35c5" />
-<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&pause=1000&color=FCFCFC&center=true&vCenter=true&width=435&lines=COLA+%2B+PEPSI;%E2%9C%B7;TOM+KAULITZ+IS+SEXY" alt="Typing SVG" /></a>
+<img alt="Untitled155_20260714183257" src="https://github.com/user-attachments/assets/673aa74a-5ca6-4f8b-b1f5-ee89d23aa80c" />
+
+<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&pause=1000&color=DC9AD6&center=true&vCenter=true&width=435&lines=TOM+KAULITZ+HYPERFIXATION;%E2%9C%B7;art+by+me+%E2%99%A1" alt="Typing SVG" /></a>
 </div>
 <div align="center">
  

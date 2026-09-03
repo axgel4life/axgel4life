@@ -4,7 +4,7 @@
 </div>
 <div align="center"> 
   
-[<img alt="twink" src="https://github.com/user-attachments/assets/5da1479c-b93c-4f62-aa1e-2ddac1fc87c6" />](https://ney4evr.straw.page/)</a>ㅤ✶ㅤ[<img alt="charm" src="https://github.com/user-attachments/assets/46fa0e55-636c-4939-99e5-0ad0307a2d80" />](https://atteiu.atabook.org/)</a>ㅤ✶ㅤ[<img alt="ouu" src="https://github.com/user-attachments/assets/e1b43902-89dd-4302-99da-6219e1b06e7f" />](https://attexhonorable.straw.page/)
+[<img alt="twink" src="https://github.com/user-attachments/assets/5da1479c-b93c-4f62-aa1e-2ddac1fc87c6" />](https://rentry.co/attesfandom)</a>ㅤ✶ㅤ[<img alt="charm" src="https://github.com/user-attachments/assets/46fa0e55-636c-4939-99e5-0ad0307a2d80" />](https://atteiu.atabook.org/)</a>ㅤ✶ㅤ[<img alt="ouu" src="https://github.com/user-attachments/assets/e1b43902-89dd-4302-99da-6219e1b06e7f" />](https://attexhonorable.straw.page/)
 
 
 

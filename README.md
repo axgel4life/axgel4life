@@ -1,4 +1,6 @@
-<p align="center"><a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Faxgel4life"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Faxgel4life&label=%F0%9D%84%9E%20%E2%8B%86%CB%8E%CB%8A-&labelColor=%235f4840&countColor=%23fbd0e2&style=flat" /></a>
+<p align="center"><a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fivokltz"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fivokltz&label=%F0%9D%84%9E%E2%8B%86%20%DD%81%E2%99%AA%20.&labelColor=%23af94cc&countColor=%2350417d&style=flat" /></a>
+  <p align="center"><img alt="love" src="https://github.com/user-attachments/assets/5bb43449-5ae6-4e8a-a74d-1a0ce4d6a360" />
+
 </div>
 <div align="center"> 
   
